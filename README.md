@@ -1,0 +1,1 @@
+# kirma-eleme-tesisi
